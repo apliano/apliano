@@ -7,4 +7,3 @@ I usually spend some free time in:
 🛠 https://www.codewars.com/users/aperezliano
 <br/>
 <br/>
-Feel free to reach me! 📫 aperezliano@gmail.com
